@@ -5,7 +5,7 @@ author: Winter
 date: 2021-12-26 15:43:00
 legacy-poll: yes
 poll: Describe your approximate Gender:
-      0%Girl
+      1%Girl
       33%Femboy
       33%Nonbinary
       0%Agender

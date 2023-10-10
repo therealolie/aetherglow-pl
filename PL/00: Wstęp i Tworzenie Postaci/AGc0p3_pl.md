@@ -18,6 +18,6 @@ poll: Czy chciałxbyś zajerestrować jakieś Zaimki dzisiaj?
 
 Nie musisz być dziewczyną, żeby cieszyć się z słodkiego smaku estrogenu pływającego w twoich żyłach. Zapisujesz się na implantację. Najwyżej oceniana to Estra-Dial Dostrajalny Jajnik z Synthorganików Carly.
 
-`Carly! Każda Grzeczna Dziewczynka zasługuje na Synthorgan"`
+`Carly! "Każda Grzeczna Dziewczynka zasługuje na Synthorgan"`
 
 Twój terminal odpala reklamę. Kiedy dostaniesz terminal studencki, nie będziesz musiałx się już męczyć z tym.

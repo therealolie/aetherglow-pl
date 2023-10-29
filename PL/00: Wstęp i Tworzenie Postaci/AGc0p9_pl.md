@@ -14,7 +14,7 @@ poll: Oto bonusowa ankieta #Aetherglow, żebyście mogli na coś dzisiaj głosow
 
 Bierzesz pod uwagę całą twoją wiedzę autystyczną w podejmowaniu tej trudnej decyzji.  Jeżeli jest jedna rzecz, która interesuje cię bardziej od zaimków, są to imiona. Możesz wybrać sobie dosłownie którekolwiek zechcesz, ale jedno się wyróżnia.
 
-**Aydan**. Podbnie jak to co musiałoś czytać w dzieciństwie, to słowo można czytać w paru różnych językach. Kiedy się je przeczyta po turecku, Aydan to żeńskie imię, oznaczające "z Księżyca. Coś, coo łączy cię z domem, a jednocześnie niszczy oczekiwania twoich rodziców. Idealnie! Od teraz będziesz znana jako Aydan.
+**Aydan**. Podobnie do tego, co wymuszali na tobie rodzice, to słowo można czytać w paru różnych językach. Kiedy się je przeczyta po turecku, Aydan to żeńskie imię, oznaczające "z Księżyca. Coś, coo łączy cię z domem, a jednocześnie niszczy oczekiwania twoich rodziców. Idealnie! Od teraz będziesz znana jako Aydan.
 
 **Tworzenie Postaci Ukończone! Właściwa historia zacznie się jutro.**
 

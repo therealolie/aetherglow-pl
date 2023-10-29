@@ -11,7 +11,7 @@ poll: Czy chiałxbyś zamówić modyfikacje?
       0%Poproszę delikatny balans między tymi dwoma
       0%Nie przeszkadza mi bycie organicznym
 
-Komputery są logiczne dla ciebie, ale płeć nie jest. Czasami czujesz się jako chłopak który jest trochę dziewczyną, ale nigdy całkowicie chłopcem albo dziewczyną. Zazwyczaj czujesz się kompletnie odłączonx od tych konceptów, ale wiesz, że twoja płeć nie jest też niczym.
+Komputery są logiczne dla ciebie, ale płeć nie jest.  Czasami czujesz się jako chłopak który jest trochę dziewczyną, ale nigdy całkowicie chłopcem albo dziewczyną.  Zazwyczaj czujesz się kompletnie odłączonx od tych konceptów, ale wiesz, że twoja płeć nie jest też niczym.
 
-Tak czy inaczej, Akademia zaoferuje ci jakiekolwiek ciało zapragniesz. Jakby co, to nie tak, że nie możesz zmienić zdania później. Biotechnologia zaszła bardzo daleko od archaicznego XXI wieku.
+Tak czy inaczej, Akademia zaoferuje ci jakiekolwiek ciało zapragniesz.  Jakby co, to nie tak, że nie możesz zmienić zdania później.  Biotechnologia zaszła bardzo daleko od archaicznego XXI wieku.
 

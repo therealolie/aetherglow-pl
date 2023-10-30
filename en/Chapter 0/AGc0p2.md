@@ -2,7 +2,6 @@ title: Ætherglow #2
 storytitle: Ætherglow 
 chapter: Character Creation
 author: Winter
-
 date: 2021-12-27 15:57:00
 legacy-poll: yes
 poll: Would you like to request a modification?
